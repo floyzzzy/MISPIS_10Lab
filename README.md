@@ -1,4 +1,4 @@
-[README.md](https://github.com/user-attachments/files/18253643/README.md)
+
 [Uplo# MISPIS_10lab_Chershnev_Evgeniy_5gr
 ![image](https://github.com/user-attachments/assets/822c1232-f689-4169-8541-85ebd13e2775)
 ![image](https://github.com/user-attachments/assets/2ad452cf-3dda-45c3-a485-670a92af1df7)
